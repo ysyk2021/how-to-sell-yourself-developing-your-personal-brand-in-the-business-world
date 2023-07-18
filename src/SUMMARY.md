@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [The importance of personal branding](chapter-1-1.md)
   - [Understanding the benefits of a strong personal brand](chapter-1-2.md)
-  - [Overview of the book's contents](chapter-1-3.md)
 - [Chapter 1: Defining Personal Branding](chapter-2.md)
   - [What is personal branding?](chapter-2-1.md)
   - [The history of personal branding](chapter-2-2.md)
