@@ -1,5 +1,3 @@
-Overcoming Fear of Differentiation
-========================================================================================
 
 In this chapter, we will discuss how to overcome the fear of differentiation when identifying your unique value proposition and building a strong personal brand.
 

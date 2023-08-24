@@ -1,5 +1,3 @@
-Building Communication Skills
-========================================================================
 
 Developing your elevator pitch is essential for building your personal brand and effectively communicating your value proposition to potential employers or clients. In this chapter, we will discuss strategies for developing a compelling elevator pitch and building communication skills.
 

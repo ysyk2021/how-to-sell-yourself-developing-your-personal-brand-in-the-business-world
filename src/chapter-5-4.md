@@ -1,5 +1,3 @@
-Building Resilience
-============================================================
 
 In this chapter, we will discuss the importance of building resilience in building your personal brand and strategies for developing a resilient mindset.
 

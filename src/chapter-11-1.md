@@ -1,5 +1,3 @@
-Recap of Personal Branding Techniques
-=================================================
 
 In this book, we have explored the concept of personal branding and provided techniques for developing and managing your personal brand in the business world. Here's a recap of the key personal branding techniques we covered:
 

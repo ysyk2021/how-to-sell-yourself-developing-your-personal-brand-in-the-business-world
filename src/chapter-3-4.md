@@ -1,5 +1,3 @@
-The Power of Positive Thinking
-========================================================================
 
 Developing a positive mindset is essential for building a strong personal brand and selling yourself effectively in the business world. In this chapter, we will discuss the power of positive thinking and strategies for cultivating a positive mindset.
 

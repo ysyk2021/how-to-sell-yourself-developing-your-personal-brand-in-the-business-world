@@ -1,5 +1,3 @@
-Strategies for Maintaining Motivation and Inspiration
-================================================================================================
 
 Maintaining motivation and inspiration is critical for sustaining your personal brand over the long-term. In this chapter, we will explore strategies for maintaining motivation and inspiration in your personal branding efforts.
 

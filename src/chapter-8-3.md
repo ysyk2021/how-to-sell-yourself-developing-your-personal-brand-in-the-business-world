@@ -1,5 +1,3 @@
-Overcoming Shyness and Social Anxiety
-======================================================================================
 
 Networking and relationship building are essential for developing a strong personal brand and achieving success in the business world. However, shyness and social anxiety can make these activities challenging. In this chapter, we will discuss strategies for overcoming shyness and social anxiety to build meaningful connections.
 

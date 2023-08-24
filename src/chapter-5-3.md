@@ -1,5 +1,3 @@
-Overcoming Obstacles and Setbacks
-==========================================================================
 
 In this chapter, we will discuss how to overcome obstacles and setbacks as you build your personal brand.
 

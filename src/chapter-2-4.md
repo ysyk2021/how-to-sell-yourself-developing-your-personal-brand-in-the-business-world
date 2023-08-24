@@ -1,5 +1,3 @@
-How to Embrace Personal Branding
-=======================================================================
 
 Personal branding is the process of developing a unique identity and reputation that sets you apart from others in your field. In this chapter, we will discuss what personal branding is and how to embrace it.
 

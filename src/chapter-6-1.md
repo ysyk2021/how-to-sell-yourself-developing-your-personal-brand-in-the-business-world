@@ -1,5 +1,3 @@
-Understanding the Impact of a Strong Elevator Pitch
-==============================================================================================
 
 In this chapter, we will discuss the importance of developing a strong elevator pitch and the impact it can have on your personal brand.
 

@@ -1,5 +1,3 @@
-Overcoming Fear of Self-Promotion
-============================================================================
 
 Developing an elevator pitch is essential for effectively selling yourself and your personal brand in the business world. However, many individuals struggle with self-promotion and fear coming across as pushy or arrogant. In this chapter, we will discuss strategies for developing your elevator pitch while overcoming fear of self-promotion.
 

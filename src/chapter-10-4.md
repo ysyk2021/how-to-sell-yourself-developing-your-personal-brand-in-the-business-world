@@ -1,5 +1,3 @@
-Building a Support System
-====================================================================
 
 Building a strong personal brand is not a one-time task; it requires ongoing effort and attention. In this chapter, we will discuss strategies for sustaining your personal brand by building a support system.
 

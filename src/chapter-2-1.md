@@ -1,5 +1,3 @@
-What is Personal Branding?
-=================================================================
 
 In this chapter, we will explore the concept of personal branding and what it means in the context of the business world.
 

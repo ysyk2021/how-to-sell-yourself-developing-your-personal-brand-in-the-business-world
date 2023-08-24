@@ -1,5 +1,3 @@
-Strategies for Building Your Personal Brand
-====================================================================================
 
 In this chapter, we will discuss strategies for building your personal brand and establishing yourself as a thought leader in your industry.
 

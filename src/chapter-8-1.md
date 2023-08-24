@@ -1,5 +1,3 @@
-Understanding the Importance of Networking and Relationship Building
-=====================================================================================================================
 
 In this chapter, we will discuss the importance of networking and relationship building in developing your personal brand and advancing your career.
 

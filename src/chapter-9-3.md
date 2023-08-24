@@ -1,5 +1,3 @@
-Building a Support System
-========================================================================================
 
 Personal branding is crucial for achieving professional success, but it takes more than just developing a strong brand to reach your goals. In this chapter, we will discuss how to apply personal branding to professional success by building a support system.
 

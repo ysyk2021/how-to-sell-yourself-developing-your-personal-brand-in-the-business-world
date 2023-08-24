@@ -1,5 +1,3 @@
-Chapter 6: Utilizing Social Media for Personal Branding
-=======================================================
 
 In this chapter, we will discuss the impact of social media on personal branding and strategies for utilizing it effectively to build a strong personal brand.
 

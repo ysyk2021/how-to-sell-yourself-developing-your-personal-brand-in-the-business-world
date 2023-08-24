@@ -1,5 +1,3 @@
-Chapter 5: Developing Your Elevator Pitch
-=========================================
 
 In this chapter, we will discuss the importance of developing a strong elevator pitch and strategies for crafting an effective one that communicates your personal brand and unique value proposition.
 

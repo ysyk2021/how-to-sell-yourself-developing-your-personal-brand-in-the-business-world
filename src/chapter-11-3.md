@@ -1,5 +1,3 @@
-Resources for Continued Learning in Personal Branding
-=================================================================
 
 Personal branding is an ongoing process that requires continuous learning and growth. To continue developing and sustaining a strong personal brand, there are several resources available, including books, online courses, and professional organizations.
 

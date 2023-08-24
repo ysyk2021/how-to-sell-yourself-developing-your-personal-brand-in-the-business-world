@@ -1,5 +1,3 @@
-Overcoming Concerns about Privacy
-==========================================================================================
 
 In this chapter, we will discuss how to overcome concerns about privacy when utilizing social media for personal branding.
 

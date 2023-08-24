@@ -1,5 +1,3 @@
-Chapter 8: Applying Personal Branding to Professional Success
-=============================================================
 
 In this chapter, we will explore the role of personal branding in achieving professional success and provide strategies for applying personal branding to your career.
 

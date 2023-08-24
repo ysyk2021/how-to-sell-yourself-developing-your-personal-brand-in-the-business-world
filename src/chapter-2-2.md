@@ -1,5 +1,3 @@
-The History of Personal Branding
-=======================================================================
 
 In this chapter, we will explore the history of personal branding and how it has evolved over time.
 

@@ -1,5 +1,3 @@
-Strategies for Applying Personal Branding to Your Career
-=======================================================================================================================
 
 In this chapter, we will explore specific strategies for applying personal branding to your career.
 

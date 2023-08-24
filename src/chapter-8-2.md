@@ -1,5 +1,3 @@
-Strategies for Effective Networking
-====================================================================================
 
 In this chapter, we will discuss strategies for effective networking to build strong connections in your industry.
 

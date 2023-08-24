@@ -1,5 +1,3 @@
-Strategies for Developing an Effective Elevator Pitch
-================================================================================================
 
 In this chapter, we will discuss strategies for developing an effective elevator pitch that communicates your personal brand and unique value proposition.
 
