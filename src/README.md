@@ -10,3 +10,7 @@ Personal branding takes time, effort, and dedication to develop. But by staying 
 Whether you're just starting out in your career or looking to take your professional development to the next level, "How to Sell Yourself: Developing Your Personal Brand in the Business World" is your guide to success. Let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
