@@ -1,5 +1,4 @@
-Chapter 17: Building Meaningful Relationships
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of personal branding and career development, building meaningful relationships is a cornerstone of success. This chapter delves into the importance of forging authentic connections and provides strategies for nurturing these relationships to enhance your personal brand and professional journey.
 

@@ -1,5 +1,4 @@
-Chapter 5: The Power of Positive Thinking
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Positive thinking is a formidable force that can greatly impact your journey in developing your personal brand in the business world. In this chapter, we will explore the significance of maintaining a positive mindset and how it can elevate your personal brand.
 

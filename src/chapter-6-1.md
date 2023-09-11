@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Impact of a Strong Elevator Pitch
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound influence of a well-crafted elevator pitch on your personal brand in the dynamic and competitive landscape of the business world.
 

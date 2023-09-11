@@ -1,5 +1,4 @@
-Chapter 19: Overcoming Shyness and Social Anxiety
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of developing a personal brand and excelling in the business world, overcoming shyness and social anxiety can be a transformative journey. This chapter explores strategies and techniques to help individuals navigate and conquer these challenges, allowing them to confidently and authentically sell themselves.
 

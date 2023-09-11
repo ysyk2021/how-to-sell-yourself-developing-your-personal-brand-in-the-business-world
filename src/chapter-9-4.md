@@ -1,5 +1,4 @@
-Chapter 12: The Impact of Personal Branding on Career Advancement
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your personal brand is not just a buzzword; it's a powerful tool that can significantly influence your career advancement in the competitive business world. In this chapter, we'll explore the profound impact of personal branding on your professional journey and how you can leverage it to achieve your career goals.
 

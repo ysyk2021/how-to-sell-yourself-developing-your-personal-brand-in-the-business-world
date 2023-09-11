@@ -1,5 +1,4 @@
-Chapter 3: Building Self-Awareness
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the foundational importance of self-awareness in the process of developing a powerful personal brand in the business world.
 

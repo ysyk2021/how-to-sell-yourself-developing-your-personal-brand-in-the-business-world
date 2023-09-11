@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Developing an Effective Elevator Pitch
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the art of crafting a compelling elevator pitch, a concise and persuasive introduction that showcases your personal brand and value proposition. Mastering this skill is essential for leaving a memorable impression in the fast-paced business world.
 

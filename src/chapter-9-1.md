@@ -1,5 +1,4 @@
-Chapter 14: The Role of Personal Branding in Achieving Professional Success
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Personal branding plays a pivotal role in determining your level of professional success in the competitive landscape of the business world. In this chapter, we will delve into the significance of personal branding and how it can be a driving force behind your journey towards achieving your career goals.
 

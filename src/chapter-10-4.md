@@ -1,5 +1,4 @@
-Chapter 15: Building a Support System
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building and sustaining a personal brand in the business world is not a solitary endeavor. It requires a strong support system to provide guidance, motivation, and resources along the way. In this chapter, we will explore the importance of building a support system and how it can significantly contribute to your personal branding journey.
 

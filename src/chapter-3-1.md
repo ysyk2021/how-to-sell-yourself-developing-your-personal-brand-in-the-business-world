@@ -1,5 +1,4 @@
-Chapter 9: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A growth mindset is the foundation upon which you can build a strong personal brand in the dynamic and competitive business world. In this chapter, we will explore the concept of a growth mindset and provide strategies for cultivating it to enhance your personal and professional development.
 

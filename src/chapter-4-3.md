@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Fear of Differentiation
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will address the common challenge of overcoming the fear of differentiation and provide strategies to embrace and leverage your unique qualities in developing your personal brand in the competitive business world.
 

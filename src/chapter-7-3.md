@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Concerns About Privacy
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the digital age, building your personal brand in the business world often involves sharing aspects of your life and expertise online. However, privacy concerns can be a roadblock for many individuals. In this chapter, we'll explore strategies to address and overcome these concerns while still effectively developing your personal brand.
 

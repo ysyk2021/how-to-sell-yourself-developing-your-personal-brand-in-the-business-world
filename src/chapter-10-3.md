@@ -1,5 +1,4 @@
-Chapter 10: Overcoming Burnout and Exhaustion
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the fast-paced and demanding world of business, burnout and exhaustion can take a toll on your personal brand and overall well-being. In this chapter, we will explore the signs of burnout, its impact on your personal brand, and strategies to overcome it.
 

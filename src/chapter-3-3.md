@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Building Self-Confidence
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the competitive world of business, self-confidence is a key ingredient for success. It's not just about having the skills and knowledge; it's also about believing in yourself and your abilities. In this chapter, we will explore strategies for building and boosting self-confidence in the business world.
 

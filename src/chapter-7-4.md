@@ -1,5 +1,4 @@
-Chapter 8: Building a Consistent Online Presence
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, establishing and maintaining a consistent online presence is a fundamental component of developing your personal brand in the business world. In this chapter, we will delve into the strategies and principles needed to create a strong and cohesive online presence.
 

@@ -1,5 +1,4 @@
-Chapter 16: Strategies for Applying Personal Branding to Your Career
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your personal brand is a powerful tool that can significantly impact your career trajectory in the business world. In this chapter, we will explore effective strategies for applying personal branding to enhance your career prospects, from job searches to professional growth.
 

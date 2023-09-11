@@ -1,5 +1,4 @@
-Chapter 5: Building Communication Skills
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the essential aspect of building strong communication skills as a cornerstone of developing your personal brand in the dynamic business world.
 

@@ -1,5 +1,4 @@
-Chapter 8: The Impact of Social Media on Personal Branding
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Social media has transformed the way we connect, communicate, and present ourselves in the business world. In this chapter, we will explore the profound influence of social media on personal branding and how you can leverage these platforms to build and enhance your professional reputation.
 

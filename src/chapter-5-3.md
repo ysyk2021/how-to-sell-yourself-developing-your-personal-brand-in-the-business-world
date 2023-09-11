@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Obstacles and Setbacks
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey of developing your personal brand in the business world, obstacles and setbacks are inevitable. However, they can also be opportunities for growth and learning. In this chapter, we will explore strategies and techniques to help you overcome these challenges and continue building your personal brand.
 

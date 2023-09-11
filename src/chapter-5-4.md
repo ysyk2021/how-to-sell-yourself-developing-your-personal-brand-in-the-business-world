@@ -1,5 +1,4 @@
-Chapter 6: Building Resilience
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a crucial attribute for anyone looking to excel in the competitive landscape of the business world. In this chapter, we will explore the concept of resilience and provide strategies to help you develop and strengthen this vital quality.
 

@@ -1,5 +1,4 @@
-Chapter 2: How to Embrace Personal Branding
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the fundamental principles and practical steps to fully embrace personal branding as a powerful tool for success in the dynamic world of business.
 

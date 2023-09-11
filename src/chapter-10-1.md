@@ -1,5 +1,4 @@
-Chapter 13: Sustaining Your Personal Brand Over the Long-Term
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a personal brand is a continuous effort, and sustaining it over the long-term is essential for lasting success in the ever-evolving business world. In this chapter, we will explore strategies to ensure that your personal brand remains relevant and influential as your career progresses.
 

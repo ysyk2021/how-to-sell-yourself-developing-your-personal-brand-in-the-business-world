@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Limiting Beliefs About Self-Promotion
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to develop your personal brand in the business world, one significant barrier to success can be the limiting beliefs you hold about self-promotion. In this chapter, we will explore the importance of addressing these beliefs and provide strategies to overcome them.
 

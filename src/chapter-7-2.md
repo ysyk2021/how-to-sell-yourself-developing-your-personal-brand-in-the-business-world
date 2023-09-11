@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Utilizing Social Media Effectively
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, social media is a powerful tool for building and promoting your personal brand in the business world. This chapter delves into strategies for harnessing the full potential of social media to enhance your personal brand.
 

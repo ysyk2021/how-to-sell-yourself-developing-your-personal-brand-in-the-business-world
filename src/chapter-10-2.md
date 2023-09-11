@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Maintaining Motivation and Inspiration
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining motivation and inspiration is essential for consistently presenting and enhancing your personal brand in the competitive business world. In this chapter, we will explore strategies to keep your motivation levels high and your inspiration flowing.
 

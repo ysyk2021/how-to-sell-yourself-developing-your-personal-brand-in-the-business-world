@@ -1,5 +1,4 @@
-Chapter 2: The History of Personal Branding
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will take a journey through the history of personal branding, tracing its evolution from ancient times to the modern era, and understanding how it has become a fundamental aspect of success in the contemporary business world.
 

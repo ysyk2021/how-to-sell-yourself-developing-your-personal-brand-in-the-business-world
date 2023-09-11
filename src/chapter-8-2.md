@@ -1,5 +1,4 @@
-Chapter 18: Strategies for Effective Networking
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective networking is a critical skill for anyone looking to develop their personal brand and succeed in the business world. In this chapter, we will explore strategies and techniques to help you master the art of networking and leverage it to enhance your career and personal brand.
 

@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Building Your Personal Brand
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a strong personal brand in the business world requires a thoughtful and strategic approach. In this chapter, we'll delve into effective strategies that will help you develop and promote your personal brand for lasting success.
 
